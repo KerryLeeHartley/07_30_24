@@ -14,3 +14,12 @@ Reflect on what went WELL, what you could do BETTER, and what you will do NEXT. 
 
 
 This response will be visible to priority reviewers during their reflections.
+
+Well:
+I excel at driving engagement, inclusion, and diversity by actively participating in the African American ERG and building bridges with Historically Black Colleges and Universities (HBCUs). These efforts have strengthened our organizational culture and opened pathways for diverse talent, which is something I am passionate about and wish to continue fostering.
+
+Better:
+I want to improve my connections with local HBCUs here in Atlanta and at my alma mater, FAMU. While I’ve made strides in building relationships, there’s more to be done in creating impactful partnerships that can lead to mutually beneficial opportunities.
+
+Next:
+Moving forward, I plan to increase my presence at recruiting events and enhance my skills to better influence the talent pool. This involves not only attending more events but also equipping myself with the tools and knowledge necessary to advocate effectively for diversity and inclusion within our hiring practices.

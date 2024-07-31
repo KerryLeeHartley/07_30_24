@@ -136,3 +136,53 @@ Collaboration Across Teams: I facilitated effective collaboration within our tea
 Empowerment Through Initiative: By stepping into roles beyond my formal responsibilities, I empowered our team to continue functioning at a high level, ensuring that all involved parties felt supported and informed.
 
 This past year has been a testament to my adaptability and dedication to driving impactful results for both Accenture and our clients. I look forward to continuing to leverage these experiences and insights to further our mission of delivering exceptional client value and fostering an inclusive, high-performance culture.
+
+$%$%$%$%$%
+
+Leadership Essentials
+Always do the right 
+thing, in every decision 
+and action.
+Lead with excellence, 
+confidence and 
+humility, as 
+demonstrated by being a 
+learner, building great 
+teams, and being 
+naturally collaborative.
+Have the 
+courage to 
+change and the 
+ability to bring 
+our people 
+along the 
+journey.
+Care deeply for 
+all our people to 
+help them 
+achieve their 
+aspirations 
+professionally 
+and personally.
+Live our unwavering 
+commitment to 
+inclusion, diversity 
+and equality, as 
+demonstrated by 
+personal impact and 
+overall results.
+Act as a true partner, to 
+each other, our clients, our 
+ecosystem and our 
+communities—committed 
+to shared success.
+Actively innovate—seeking new answers, 
+applying a tech, AI and data first mindset, 
+looking internally across Accenture and 
+outside—to partners, competitors, start-ups, 
+clients, academia and analysts—to learn, 
+respectfully challenge our assumptions and 
+apply the innovation, and cultivate and reward 
+out people for doing the same.
+
+$%$%$$%%$%$%

@@ -188,4 +188,9 @@ Exemplify clientcentricity and a
 commitment to client 
 value creation.
 
+$%$%$%$%$%$
+
+What behaviors and examples of collaboration do you demonstrate consistently?
+How are you focusing on your development & what new actions can you take to grow your career?
+
 $%$%$$%%$%$%

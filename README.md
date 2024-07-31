@@ -217,3 +217,26 @@ I have established myself as a subject matter expert in a key quarterly initiati
 I prioritize the professional and personal aspirations of our team by actively supporting senior leaders and my peers, taking the initiative to develop necessary skills. This effort demonstrates my commitment to nurturing individual strengths and helping team members achieve their goals.I
 
 Through these actions, I have fostered a culture of collaboration and inclusion that aligns with Accenture's Leadership Essentials, ultimately contributing to shared success and client satisfaction.
+
+$%$%$%%$%$%
+
+
+Focusing on Development:
+
+Continuous Learning: I am actively pursuing certifications in Salesforce and Tableau to deepen my expertise in data analysis and reporting. These certifications will enhance my ability to drive strategic decisions and provide valuable insights, positioning me as a subject matter expert in key initiatives and improving my overall contribution to the team.
+
+Leadership Development: I am committed to growing my leadership skills by seeking opportunities to create personalized development plans for team members. By focusing on developing others, I aim to build a strong leadership pipeline and foster a collaborative and empowered team environment.
+
+Diverse Talent Engagement: I have been actively involved in engaging with diverse talent pools, including attending events like AfroTech. This has allowed me to build valuable connections and gain insights into the needs of diverse professionals, which I leverage to support inclusive hiring practices and promote a more diverse and equitable workplace.
+
+Corporate Citizenship: I am dedicated to increasing my involvement in corporate citizenship initiatives. By volunteering more in our company’s corporate citizenship opportunities, I aim to contribute to community engagement efforts and support causes that align with our organizational values. This not only allows me to give back but also strengthens my connection to the company’s mission and values.
+
+New Actions for Career Growth:
+
+Expand Cross-Team Collaboration: I plan to facilitate more opportunities for cross-team collaboration and knowledge-sharing. This will involve organizing and participating in workshops, training sessions, and networking events to enhance collaboration and share best practices across different teams and departments.
+
+Enhance Mentorship Efforts: I will increase my involvement in providing mentorship to colleagues, particularly those in leadership roles. By offering guidance and support, I aim to help others achieve their professional goals and contribute to their development, which in turn will strengthen our overall team dynamics.
+
+Engage in Industry Trends: I will stay updated on industry trends and emerging technologies to continuously innovate and apply new insights to my work. This includes participating in relevant webinars, conferences, and industry forums to ensure that I am at the forefront of industry developments and can bring fresh ideas and perspectives to my role.
+
+Set Personal Growth Goals: I will set specific, measurable goals for my personal and professional development, including seeking feedback and evaluating my progress regularly. This will help me stay focused on my growth objectives and ensure that I am taking actionable steps towards achieving my career aspirations.

@@ -60,3 +60,20 @@ Moving forward, I plan to increase my presence at recruiting events and become m
   Collaboration (C): Active participation in recruiting events will allow me to work closely with HR and recruitment teams, providing valuable feedback and suggestions to improve diversity efforts.
   
   Development & Growth (D): I will focus on personal growth through certifications and training, which will enable me to better coach and guide others in supporting Accenture’s diversity and inclusion objectives.
+
+
+%&%&%&%&&%&%&%&%&%&%&%&%
+Priority: Cultivate Leaders Who Build Leaders to Build a Strong and Empowered Team
+
+Detailed Description
+Areas of Impact (A): People: Attracting, inspiring, engaging, developing, and retaining an inclusive and diverse workforce, creating an environment where every person believes Accenture is the best place to achieve their aspirations personally and professionally. One Accenture: Working together, inspiring collaboration not only within the immediate team but across Accenture, to bring the best of Accenture to clients Client: Creating success for clients by delivering value and focusing on creating positive, collaborative client experiences, including building and nurturing trusted key client relationships.
+Behaviors (B): Identify high-potential individuals within the team who demonstrate leadership potential and a passion for growth. Provide mentorship, guidance, and support to leaders who develop other leaders within their teams, helping them enhance their leadership skills and empower them to build a strong leadership pipeline. Foster a culture of continuous learning and development, encouraging leaders to seek out relevant training, workshops, and resources to enhance their own leadership capabilities and support the growth of their team members. Lead by example, demonstrating the values of care, kindness, and connection in all interactions, and inspiring others to do the same.
+Collaboration (C): Facilitate opportunities for cross-team collaboration and knowledge-sharing, encouraging leaders who build leaders to connect and learn from one another. Engage with other project leaders and teams within Accenture to share best practices and innovative approaches to leadership development that focuses on building leaders within teams. Partner with HR and talent development teams to align leadership development initiatives and leverage existing resources to support the growth and development of leaders who build leaders.
+Development & Growth (D): Create personalized development plans for leaders who build leaders, identifying specific areas for growth and providing targeted feedback and coaching to enhance their leadership effectiveness. Encourage leaders to delegate responsibilities, empowering their team members and providing growth opportunities for them to develop their leadership skills. Continuously evaluate and provide constructive feedback on leadership performance, fostering a culture of continuous improvement and growth among leaders who build leaders.
+
+Provide a reflection on your priority.
+
+Reflect on what went WELL, what you could do BETTER, and what you will do NEXT. Consider both impact achieved and behavior demonstrated.
+
+
+This response will be visible to priority reviewers during their reflections.

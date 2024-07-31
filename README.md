@@ -23,3 +23,25 @@ I want to improve my connections with local HBCUs here in Atlanta and at my alma
 
 Next:
 Moving forward, I plan to increase my presence at recruiting events and enhance my skills to better influence the talent pool. This involves not only attending more events but also equipping myself with the tools and knowledge necessary to advocate effectively for diversity and inclusion within our hiring practices.
+
+Well:
+I excel at driving engagement, inclusion, and diversity by actively participating in the African American ERG and building bridges with HBCUs. This work contributes significantly to:
+
+Client Impact (A): By fostering a diverse and inclusive environment, I help create a positive client experience that represents Accenture’s commitment to diversity and inclusion, thereby enhancing client satisfaction and loyalty.
+Behaviors (B): I actively contribute to ERG discussions and initiatives, promoting diversity and inclusion and advocating for policies that create a culture of care, kindness, and connection within Accenture.
+Collaboration (C): Through ERG collaboration and sharing best practices, I contribute to a sense of belonging and teamwork across Accenture, facilitating the sharing of insights and strategies that benefit the entire organization.
+Development & Growth (D): I seek out opportunities to expand my knowledge of diversity, equity, and inclusion, which allows me to contribute to the broader Accenture community by sharing experiences and promoting diversity awareness.
+Better:
+I want to improve my connections with local HBCUs in Atlanta and at FAMU to enhance:
+
+Client Impact (A): Strengthening these connections will allow me to help attract diverse talent, which is crucial in fostering a more inclusive environment that resonates positively with our clients.
+Behaviors (B): By better engaging with HBCUs, I can serve more effectively as an ambassador for Accenture, referring talented individuals and advocating for diversity in our hiring practices.
+Collaboration (C): Building deeper relationships with HBCUs will enhance our collaborative efforts, allowing me to partner with colleagues and recruitment teams to improve diversity and inclusion initiatives.
+Development & Growth (D): Improved connections with HBCUs will expand my understanding of their talent pool, helping me to refer exceptional candidates and enhance my ability to support the growth and development of Accenture's diverse workforce.
+Next:
+Moving forward, I plan to increase my presence at recruiting events and become more equipped to influence the talent pool by:
+
+Client Impact (A): My increased involvement in recruiting events will help attract diverse talent, ultimately leading to a more inclusive environment that enhances the client experience.
+Behaviors (B): By equipping myself with better tools and knowledge, I will be more effective in advocating for inclusive hiring practices and supporting Accenture’s diversity goals.
+Collaboration (C): Active participation in recruiting events will allow me to work closely with HR and recruitment teams, providing valuable feedback and suggestions to improve diversity efforts.
+Development & Growth (D): I will focus on personal growth through certifications and training, which will enable me to better coach and guide others in supporting Accenture’s diversity and inclusion objectives.

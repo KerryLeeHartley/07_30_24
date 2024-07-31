@@ -31,6 +31,7 @@ Client Impact (A): By fostering a diverse and inclusive environment, I help crea
 Behaviors (B): I actively contribute to ERG discussions and initiatives, promoting diversity and inclusion and advocating for policies that create a culture of care, kindness, and connection within Accenture.
 Collaboration (C): Through ERG collaboration and sharing best practices, I contribute to a sense of belonging and teamwork across Accenture, facilitating the sharing of insights and strategies that benefit the entire organization.
 Development & Growth (D): I seek out opportunities to expand my knowledge of diversity, equity, and inclusion, which allows me to contribute to the broader Accenture community by sharing experiences and promoting diversity awareness.
+
 Better:
 I want to improve my connections with local HBCUs in Atlanta and at FAMU to enhance:
 
@@ -38,6 +39,7 @@ Client Impact (A): Strengthening these connections will allow me to help attract
 Behaviors (B): By better engaging with HBCUs, I can serve more effectively as an ambassador for Accenture, referring talented individuals and advocating for diversity in our hiring practices.
 Collaboration (C): Building deeper relationships with HBCUs will enhance our collaborative efforts, allowing me to partner with colleagues and recruitment teams to improve diversity and inclusion initiatives.
 Development & Growth (D): Improved connections with HBCUs will expand my understanding of their talent pool, helping me to refer exceptional candidates and enhance my ability to support the growth and development of Accenture's diverse workforce.
+
 Next:
 Moving forward, I plan to increase my presence at recruiting events and become more equipped to influence the talent pool by:
 

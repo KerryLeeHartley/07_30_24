@@ -111,3 +111,28 @@ Moving forward, I will focus on facilitating opportunities for cross-team collab
 -**Collaboration (C)**: I will create and support initiatives that bring different teams together to learn from each other and share best practices.
 
 -**Development & Growth (D)**: My goal is to establish a robust framework for ongoing knowledge exchange, ensuring that our leadership development efforts are sustainable and impactful.
+
+$%$%$%$%%$%$%$% 
+Performance Summary: Areas of Impact (A)
+
+Over the past 12 months, I have demonstrated significant impact in key areas by stepping into leadership roles and fostering strong client relationships, aligned with Accenture's core values.
+
+Client:
+
+Transition Leadership: During a critical period of transition, I played a pivotal role in ensuring continuity and stability for both our team and our client's operations. As our team shifted between two managers, I stepped in to maintain seamless communication and operational flow, preventing any disruption in our service delivery.
+
+Client Liaison: I effectively fostered new relationships with our client stakeholders as they transitioned to a new Sr. Sales Operations Manager. By proactively engaging and understanding their needs, I established trust and served as a reliable point of contact, ensuring that any gaps during their onboarding phase were addressed promptly and efficiently.
+
+People:
+
+Subject Matter Expertise: I have developed and established myself as a subject matter expert in a key initiative that occurs quarterly. This has not only enhanced my ability to contribute valuable insights and drive outcomes but also allowed me to mentor and support colleagues in understanding and executing this initiative effectively.
+
+Support to Senior Leaders: Without formal training, I took the initiative to develop the necessary skills and knowledge to support a team of senior leaders (level 8 and below). This involved engaging with their stakeholders and facilitating day-to-day operations, demonstrating my adaptability and commitment to personal growth and team success.
+
+One Accenture:
+
+Collaboration Across Teams: I facilitated effective collaboration within our team and with client stakeholders during the transition periods. By bridging gaps and ensuring continuous communication, I helped uphold Accenture's reputation for seamless client service and teamwork.
+
+Empowerment Through Initiative: By stepping into roles beyond my formal responsibilities, I empowered our team to continue functioning at a high level, ensuring that all involved parties felt supported and informed.
+
+This past year has been a testament to my adaptability and dedication to driving impactful results for both Accenture and our clients. I look forward to continuing to leverage these experiences and insights to further our mission of delivering exceptional client value and fostering an inclusive, high-performance culture.

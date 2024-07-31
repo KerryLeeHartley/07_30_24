@@ -85,7 +85,7 @@ I excel at cultivating leaders who build other leaders, thereby fostering a stro
 
 -**Client Impact (A)**: By nurturing leaders within our team, we enhance our ability to deliver superior service and solutions to clients, demonstrating our commitment to excellence and innovation.
 
--**Behaviors** (B)**: I actively identify high-potential individuals and provide them with the mentorship and support they need to grow, thereby strengthening our leadership pipeline.
+-**Behaviors(B)**: I actively identify high-potential individuals and provide them with the mentorship and support they need to grow, thereby strengthening our leadership pipeline.
 
 -**Collaboration (C)**: By fostering a culture of leadership and empowerment, I encourage collaboration across teams, helping to bring out the best in everyone.
 Development & Growth (D): I am committed to continuous learning and development, both for myself and for my team, ensuring we stay at the forefront of our industry.

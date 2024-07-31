@@ -194,3 +194,26 @@ What behaviors and examples of collaboration do you demonstrate consistently?
 How are you focusing on your development & what new actions can you take to grow your career?
 
 $%$%$$%%$%$%
+
+In my role, I consistently demonstrate collaboration through the following behaviors and examples:
+
+- Leading with Excellence and Humility:
+
+I believe in leading with a mindset of continuous learning and collaboration. During the team transitions we experienced, I stepped up to support and encourage my colleagues, ensuring they felt empowered and valued. This approach not only maintained morale but also fostered a sense of unity and purpose.
+
+- Commitment to Inclusion, Diversity, and Equality:
+
+My commitment to inclusion and diversity is reflected in my active participation in the African American ERG, where I engage in initiatives that promote diversity and build bridges with HBCUs. Additionally, I attended AfroTech at my own expense, which allowed me to build valuable connections within a diverse talent pool and bring fresh perspectives and ideas back to our team.
+Acting as a True Partner:
+
+I consistently act as a partner to both our clients and colleagues by facilitating seamless communication and collaboration. For instance, during the transition of our client's management team, I served as a liaison, ensuring that their needs were met and expectations were clearly communicated, which maintained trust and minimized disruption.
+
+- Exemplifying Client-Centricity:
+
+I have established myself as a subject matter expert in a key quarterly initiative, which allows me to deliver insights and guidance that directly contribute to our clients’ strategic decision-making processes. By positioning our team as a trusted advisor, I consistently drive client value creation.
+
+- Caring Deeply for Our People:
+
+I prioritize the professional and personal aspirations of our team by actively supporting senior leaders and my peers, taking the initiative to develop necessary skills. This effort demonstrates my commitment to nurturing individual strengths and helping team members achieve their goals.I
+
+Through these actions, I have fostered a culture of collaboration and inclusion that aligns with Accenture's Leadership Essentials, ultimately contributing to shared success and client satisfaction.

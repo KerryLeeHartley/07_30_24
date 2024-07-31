@@ -184,5 +184,8 @@ clients, academia and analysts—to learn,
 respectfully challenge our assumptions and 
 apply the innovation, and cultivate and reward 
 out people for doing the same.
+Exemplify clientcentricity and a 
+commitment to client 
+value creation.
 
 $%$%$$%%$%$%
